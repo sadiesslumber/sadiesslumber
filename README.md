@@ -1,5 +1,5 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="634" height="525" alt="image" src="https://github.com/user-attachments/assets/7712a61d-d2fd-4fc6-aa0d-e8a36dbccc16" />
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsadie ㅤ𓂅ㅤᵒʳㅤ colbyㅤㅤ𝜗ৎ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ㅤㅤㅤsadie ㅤ𓂅ㅤᵒʳㅤ maxㅤㅤ𝜗ৎ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
